@@ -1,4 +1,7 @@
 ## Hi there 👋
+Add me on League!
+https://op.gg/lol/summoners/search?q=hunterhunt360&region=na
+
 
 <!--
 **zhanghunt/zhanghunt** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
