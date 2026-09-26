@@ -1,10 +1,8 @@
 ## Hi there 👋
-Add me on League!
+Add me on League!  
+https://op.gg/lol/summoners/search?q=hunterhunt360&region=na  
 
-https://op.gg/lol/summoners/search?q=hunterhunt360&region=na
-
-or Rivals
-
+or Rivals  
 https://rivalsdata.com/player/662252439
 
 
