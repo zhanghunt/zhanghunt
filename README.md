@@ -3,6 +3,10 @@ Add me on League!
 
 https://op.gg/lol/summoners/search?q=hunterhunt360&region=na
 
+or Rivals
+
+https://rivalsdata.com/player/662252439
+
 
 <!--
 **zhanghunt/zhanghunt** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
